@@ -12,7 +12,7 @@
 
 **Email:**  aysenur.ataman@csi.cuny.edu
 
-**Textbook:**         Lilienfeld, S., Lynn, S., &amp; Namy L. S. (2018). Psychology: From Inquiry to Understanding, 4/E. Pearson. ISBN: 97802134552514. List price $258.80
+**Textbook:**   https://courses.lumenlearning.com/boundless-psychology/ 
 
 
 
